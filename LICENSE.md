@@ -1,4 +1,4 @@
-#  
+#  anime vanguards rare Scripts offers the most advanced anime vanguards Script, with auto-heal and auto-collect. Perfect for dominating any match.
 
 
 
